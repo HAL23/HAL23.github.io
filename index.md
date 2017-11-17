@@ -1,3 +1,3 @@
-https://twitter.com/hal2300
+[Twitter](https://twitter.com/hal2300)
 
-https://www.instagram.com/hal2300/
+[Instagram](https://www.instagram.com/hal2300/)
